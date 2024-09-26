@@ -1,31 +1,12 @@
+![ambar](https://github.com/user-attachments/assets/74c1f462-fbc4-4b0a-8612-280f8dbc6884)
 
-![IMG_4647](https://github.com/user-attachments/assets/52495ba9-c7cb-4970-8f1c-358d6e7e96ca)  (Moodboard EP)
-![IMG_4646](https://github.com/user-attachments/assets/4ca3c92e-548d-45d9-a58b-20113ee07b8f) (Moodboard Ambar)
-![Slide 16_9 - 40 (1)](https://github.com/user-attachments/assets/c1effb08-4dea-4c82-acfd-044d2ca5b706)  (Moodboard Piel de tinta)
-![MOODBOARD (1)](https://github.com/user-attachments/assets/33c75a53-d701-4310-83b8-a4ea81693379) (Moodboard Luccs)
+![kuky](https://github.com/user-attachments/assets/cf72bcf1-1f82-4dda-9a79-03627e49634e)
 
+![mb ambar](https://github.com/user-attachments/assets/9d3c5150-7e83-4bf0-9e95-2ca790239ca6)
 
-![Slide 16_9 - 41 (1)](https://github.com/user-attachments/assets/19c329dd-4a58-495f-a140-1fba778671b7)  (Afiche KUKY)
-![Examen Ámbar 1_compressed_page-0001](https://github.com/user-attachments/assets/4070f353-7e6a-46d6-b484-f9ea63db72b0) (Afiche Ambar)
-![Slide 16_9 - 36 (2)](https://github.com/user-attachments/assets/99258db3-8312-4a36-ba31-7ecbd65cd8fd) (piel de tinta RS)
+![mb piel de tinta](https://github.com/user-attachments/assets/af50e64f-800f-40c1-aa64-d54924571f64)
 
+![piel de tinta](https://github.com/user-attachments/assets/e9b88287-f5ae-4a38-a4c0-dd54b29a8d88)
 
-![Group 162](https://github.com/user-attachments/assets/9cd2d03a-ded9-4c32-bb3c-db7dd3d0faef) (Piel de tinta telefono)
-![Group 161](https://github.com/user-attachments/assets/bf56981d-62f6-4ee8-91b8-1600531245c5) (Piel de tinta Mockups) 
-
-
-
-
-Moodboard Ambar 
-![IMG_4646](https://github.com/user-attachments/assets/b1251a66-bb53-48e0-ad06-e20872a303f0)
-
-
-Moodboard Luccs
-
-
-
-
-
-
-
+![reloj](https://github.com/user-attachments/assets/034513be-b87e-4ae1-aa95-b5e79bd4969a)
 
