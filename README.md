@@ -17,7 +17,7 @@
     {
         "nombre": "Proyecto Kuky",
         "fecha": "2023",
-        "signo": "Producto",
+        "signo": "Afiches",
         "foto": "https://github.com/user-attachments/assets/cf72bcf1-1f82-4dda-9a79-03627e49634e",
         "github": "https://github.com/Nandaamc"
     },
@@ -31,7 +31,7 @@
     {
         "nombre": "El olor del tiempo",
         "fecha": "2024",
-        "signo": "Producto",
+        "signo": "Afiches",
         "foto": "https://github.com/user-attachments/assets/034513be-b87e-4ae1-aa95-b5e79bd4969a",
         "github": "https://github.com/Nandaamc"
     },
